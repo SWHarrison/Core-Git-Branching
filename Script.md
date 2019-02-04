@@ -22,7 +22,6 @@ He stuck his head in the door, the color of the foliage was intense greens, brow
 The smell of the of the zoo was intense and alive.
 He took a tentative step through the door and followed the stone path overgrown with giant ferns.
 
-<<<<<<< HEAD
 Braus called to him, telling him to stop. But George ignored him and kept going.
 
 George met the Unicorn King who granted him magic powers. He used these powers to rule the world with an iron fist. Humanity was entering a true dark age.
